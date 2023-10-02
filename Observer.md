@@ -1,0 +1,1 @@
+![[Observer 2023-10-02 08.14.45.excalidraw]]
